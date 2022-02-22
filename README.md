@@ -1,1 +1,0 @@
-# motion-study-multiple-comparison
